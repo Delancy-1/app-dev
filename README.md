@@ -1,5 +1,3 @@
-# app-dev
-
 # My Favorite Movie
 
 ## Barbie and the Secret Door
