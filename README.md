@@ -1,53 +1,58 @@
-# My Favorite Movie
+# My Favorite Series
 
-## Barbie and the Secret Door
+## The Glory
 
-**Barbie and the Secret Door** is one of my
-favorite animated movies because of its
-magical world, beautiful songs, and
-meaningful lessons about courage and
-believing in yourself.
+**The Glory** is one of my favorite Korean
+drama series because of its interesting
+storyline, emotional scenes, and powerful
+message about justice, revenge, and
+standing up for yourself.
 
-### About the Movie
+### About the Series
 
-Barbie and the Secret Door is a fantasy
-musical animated movie about a shy princess
-named Alexa who discovers a mysterious
-secret door in her kingdom. Behind the door,
-she finds a magical world filled with
-mermaids, fairies, and unicorns. Along the
-way, she meets new friends and learns to
-become more confident and brave.
+The Glory is a South Korean revenge drama
+about a woman named Moon Dong-eun who
+experienced severe bullying during her
+school years. Years later, she carefully
+plans her revenge against the people who
+made her life miserable. As the story
+unfolds, secrets are revealed, and each
+character faces the consequences of
+their actions.
 
 ### My Favorite Characters
 
-- Princess Alexa
-- Romy
-- Nori
-- Princess Malucia
+- Moon Dong-eun
+- Joo Yeo-jeong
+- Kang Hyeon-nam
+- Park Yeon-jin
+- Ha Do-yeong
 
-### Why I Like This Movie
+### Why I Like This Series
 
-I like this movie because it teaches us
-that we should believe in ourselves and
-never be afraid to try new things. I also
-love its colorful animation, magical
-adventures, and wonderful songs.
+I like this series because it has a
+suspenseful storyline that keeps me
+interested in every episode. It also
+shows how painful bullying can be and
+reminds us that our actions have
+consequences. I also admire the main
+character's determination and intelligence.
 
-### Movie Information
+### Series Information
 
-**Genre:** Fantasy, Musical, Animation
+**Genre:** Revenge, Thriller, Drama
 
-**Release Year:** 2014
+**Country:** South Korea
+
+**Release Year:** 2022–2023
 
 **Rating:** 10/10
 
-> "Be yourself and believe in your dreams."
-
 ### My Favorite Part
 
-My favorite part is when Alexa discovers
-the secret door and enters the magical
-world. I enjoy seeing her journey as she
-becomes more confident and discovers
-her true potential.
+My favorite part is watching Moon Dong-eun
+carefully carry out her plans and face
+the people who hurt her in the past.
+I enjoy how the story reveals unexpected
+twists and shows how every action has
+consequences.
